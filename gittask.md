@@ -1,0 +1,10 @@
+
+ Name: IBEAWUCHI CHIZURUM
+ 
+ Email : AURORACHIZY4@GMAIL.COM 
+
+ Slack UsernameE: CHIZURUM IBEAWUCHI 
+ 
+ Tracks: DESIGN
+
+ Courses: UI/UX (DESIGN)
